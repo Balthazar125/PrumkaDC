@@ -1,5 +1,5 @@
 
-## picamen:
+## pietschman:
 kdo jinemu jamu kopa -> metrostav
 dockej casu jako vegetarian na cocku/vlak ceskych drah
 - eeeeeeeehhhh
@@ -7,18 +7,21 @@ lidove receno
 - kakuliho pristroj
 - bill brana
 a mluvime o neem v minulem case
-- zidovske hrabe
+- zidovske hrabe  
 odporacel se do kremikoveho nebe
 a jak se to leci? lobotomii nebo pro fajnsmekry chemoterapii
 director kraci
 a co jste tim dokazali?
 a ted tu o karkulce
 pan cimrman prisel do liptakova v rijnu/listopadu 1902 +/-200let
-- vyhruzna tabulka
+- vyhruzna   
 hosi neserte me nevyplaci se to
-- rezim vecernicek
+- rezim vecernicek  
 zazvonil zvonec pohadky je konec
-
+Misto jaderne elektrarny temelin mame krater u Temelina
+prusvih mame masinku/nemame masinku
+zakon padajiciho excrementu - „Co jedna generace inženýrů vymyslí jako ‚ulehčení‘, to další generace schytá jako povinnou látku navíc k té stávající.“, „Zákon stanovuje, že objem nutných znalostí narůstá s každým vynálezem, protože junioři musí absorbovat historii oboru i jeho novou složitost.“
+mam radost ze jste se zbavili te bandy ignorantu
 
 
 ## maschio:
