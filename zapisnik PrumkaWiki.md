@@ -25,7 +25,10 @@ mam radost ze jste se zbavili te bandy ignorantu
 
 
 ## maschio:
+Taaakk jooo
 jsem vysokej jako drak
+Že ty kecáš?
+Ale to si tady říkám pro sebe, mě neposlouchejte
 
 
 ## benes:
