@@ -23,6 +23,9 @@ prusvih mame masinku/nemame masinku
 zakon padajiciho excrementu - „Co jedna generace inženýrů vymyslí jako ‚ulehčení‘, to další generace schytá jako povinnou látku navíc k té stávající.“, „Zákon stanovuje, že objem nutných znalostí narůstá s každým vynálezem, protože junioři musí absorbovat historii oboru i jeho novou složitost.“
 mam radost ze jste se zbavili te bandy ignorantu
 vsichni maji vernostni karticky vsech takze nikdo neni verny nikomu
+tam kde stála jaderná elektrárna Dukovany stojí kráter u Dukovan (chyba vypocetni jednotky kvuli interferenci)
+dřevěné zařízeni s tlačítkem reset, pokud ho má
+n-počet zařízení kde n se blíží nekonečnu
 
 
 
@@ -39,3 +42,4 @@ muzes mi to zatancovat
 muzes mi to rict rusky(to neumis ty), Nemecky umim to 2 pivech a Anglicky neumim ja
 hlinik? ten se odstehoval do humpolce
 ja jsem matiku nevidel 40 let
+
