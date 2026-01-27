@@ -34,7 +34,9 @@ Taaakk jooo
 jsem vysokej jako drak
 Že ty kecáš?
 Ale to si tady říkám pro sebe, mě neposlouchejte
-
+Hele já to napsal asi blbě, noo to vypadá dobře. Ty vole já to ani po sobě nepřečtu.
+mám dislexii, ale to jenom dneska.
+to už můžu smazat, to nikoho nebude zajímat, ani mě
 
 ## benes:
 hopsa hejsa do Brandejsa
