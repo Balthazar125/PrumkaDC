@@ -42,6 +42,11 @@
 - píšu jiný písmena než přemýšlím  
 - rozumný lidi jako já dělat ze spoda nahoru  
 - Software/Firmware - 100x výdělek za nic / jednu práci, Zdravotní sestra každý pacient jednou. -> proto víme proč lidi fňukaj, že nemají peníze  
+- mně nikdo nepeče, jsem odkázán na Lidl. Vždycky v té schránce pro chudé koukám.  
+- Nedá si někdo buchtu? Nechcete sprejnout? Nedá si někdo čaj?  
+- já se radči koukni na Trampa, ten má lepší vtipy.  
+- pokud se chcete jít opálit zimě, jeďte do ruska oni tam vyházeli nějak tisíc jader.  
+- 
 
 ## Benes:
 ---
