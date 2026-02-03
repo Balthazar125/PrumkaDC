@@ -38,6 +38,10 @@
 - Hele já to napsal asi blbě, noo to vypadá dobře. Ty vole já to ani po sobě nepřečtu.  
 - Mám asi dislexii, ale to jenom dneska.  
 - to už můžu smazat, to nikoho nebude zajímat, ani mě  
+- Kdybybyli moji rodiče na živu, tak bych jim řekl jaký to byli zmrdi, že mi vysázeli stromy na pozemku. Když jsem kácel strom tak mě píchla vosa a strašně mi otekla ruka.  
+- píšu jiný písmena než přemýšlím  
+- rozumný lidi jako já dělat ze spoda nahoru  
+- Software/Firmware - 100x výdělek za nic / jednu práci, Zdravotní sestra každý pacient jednou. -> proto víme proč lidi fňukaj, že nemají peníze  
 
 ## Benes:
 ---
