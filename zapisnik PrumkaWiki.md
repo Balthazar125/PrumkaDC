@@ -28,6 +28,7 @@
 - dřevěné zařízeni s tlačítkem reset, pokud ho má  
 - n-počet zařízení kde n se blíží nekonečnu  
 - na to by jste mi měli odpovědět i pokud vám vkročím do snu čímžto se z toho stane noční můra a odvalit se na druhý bok  
+- cesta na záchod vede kolem tabule  
 
 ## Maschio:
 ---
@@ -46,7 +47,10 @@
 - Nedá si někdo buchtu? Nechcete sprejnout? Nedá si někdo čaj?  
 - já se radči koukni na Trampa, ten má lepší vtipy.  
 - pokud se chcete jít opálit zimě, jeďte do ruska oni tam vyházeli nějak tisíc jader.  
-- 
+- to je jako s dívkou - vypadá dobře a pak se začně přejídat  
+- pozor ať se proti tobeě neobrátí podlaha  
+- pozor ten alkohol je kradenej, když dojde budou se vybírat peníze  
+- to neni jako vláčkař, který mlátí do kole ať zjistí jestli je prasklý nebo ne  
 
 ## Benes:
 ---
