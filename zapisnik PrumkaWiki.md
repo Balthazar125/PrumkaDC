@@ -1,6 +1,7 @@
 # Hláškovník
 ## Pietschman:
 ---
+- 3 faze picmana
 - kdo jinemu jamu kopa -> metrostav  
 - dockej casu jako vegetarian na cocku/vlak ceskych drah  
 - eeeeeeeehhhh  
@@ -29,10 +30,14 @@
 - n-počet zařízení kde n se blíží nekonečnu  
 - na to by jste mi měli odpovědět i pokud vám vkročím do snu čímžto se z toho stane noční můra a odvalit se na druhý bok  
 - cesta na záchod vede kolem tabule  
+- Picmanuv koeficient - bud ted po kapkach nebo potom v pekle
+- A co to bylo za doktora, když jste tam byli oba dva? (gynekolog)
+- Sereš mě!
+-
 
 ## Maschio:
----
-- Taaakk jooo  
+--
+-- Taaakk jooo  
 - jsem vysokej jako drak  
 - Že ty kecáš?  
 - Ale to si tady říkám pro sebe, mě neposlouchejte.  
@@ -50,7 +55,30 @@
 - to je jako s dívkou - vypadá dobře a pak se začně přejídat  
 - pozor ať se proti tobeě neobrátí podlaha  
 - pozor ten alkohol je kradenej, když dojde budou se vybírat peníze  
-- to neni jako vláčkař, který mlátí do kole ať zjistí jestli je prasklý nebo ne  
+- to neni jako vláčkař, který mlátí do kola ať zjistí jestli je prasklý nebo ne
+- haló marťani? on tady zlobí při TVPčku, odvezte si ho.
+- máš na to pytlik? musíš si to plánovat když improvizuješ.
+- doufam ze mate dostatek jidla a piti? vyuka odpada
+- prijdu, ale jen se podívat ne učit
+- vzhledem k tomu že nemám kde sedět -> jsem znechucen. Odcházím.
+- asi dostanes do lodickou do levy nosni dirky
+- ale ja se ptam i kdyz nejde videt ten otaznik nakonci vety.
+- Seifert že si zase gamil večer.
+- chybí -> za 5
+- je to v pytlicích ještě kovidových, jsou nepoužitý, možná jsou použitý.
+- máš zbytečně moc hajzl papíru, já vim, že doma nešetříš, ale tady se šestří.
+- si nepochopil jak jsem to myslel -> dostaneš za 5
+- vidíš tu čáru? to je moje území/učitele. tam nesmíš
+- nevidíš skrz přes mojí hlavu? se soustřeď a koukej skrz ni ona neni tak tlustá
+- ani čtvrťáci to nevymysleli, teď řeší kdo a kdy bude blejt na plese
+- ty nemáš ještě přítelkyni, ale už se ptáš jestli ti udělá oběd
+- to je ta ceska hnusna klaveska bych to nejradsi spalil
+- vy jste uplne bezprizorni ne? jste něco hulili pres vikend ne
+- tyvole baboucek ty se probud ty jeste zijes ve vychodni bloku se presun na zapad
+- komu zlomim penal
+- Bych Mocovi tenhle bordel rozkopal. Nechce si někdo vzít klávesku a omlátit si ji o hlavu?
+- chce si někdo zavlat marťany?
+
 
 ## Benes:
 ---
@@ -58,5 +86,12 @@
 - muzes mi to zatancovat    
 - muzes mi to rict rusky(to neumis ty), Nemecky umim to 2 pivech a Anglicky neumim ja  
 - hlinik? ten se odstehoval do humpolce  
--ja jsem matiku nevidel 40 let  
+- ja jsem matiku nevidel 40 let  
 
+
+## Morongis:
+---
+- jdes dělat na základku? Se tam voženíš, si najdešnějakou 15 letou slečnu
+- kouknu a vidím kreténa
+- Vidím kreténa a nebavim se s nim.
+- vidim kreténa otáčim se a s nosem nahoru odcházím
