@@ -33,7 +33,8 @@
 - Picmanuv koeficient - bud ted po kapkach nebo potom v pekle
 - A co to bylo za doktora, když jste tam byli oba dva? (gynekolog)
 - Sereš mě!
--
+- A co cert nechtel mrtvy poplatnik nemuze platit dane a to uz je narodo hospodarska krize
+- 
 
 ## Maschio:
 --
@@ -78,7 +79,11 @@
 - komu zlomim penal
 - Bych Mocovi tenhle bordel rozkopal. Nechce si někdo vzít klávesku a omlátit si ji o hlavu?
 - chce si někdo zavlat marťany?
-
+- předmět co je čistě fiktivní. Dráha.
+- nemohu, protože se koukám tam a tam neni nic napsaného
+- je ti vedro na čaj? si strč hlavu do lednice třeba.
+- na čaj je ti vedro? ty si kulíšek
+- film - Hunt for the Red October -> jak zabit bolševika
 
 ## Benes:
 ---
